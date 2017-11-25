@@ -1,2 +1,0 @@
-# mondu
-The Mondu Recipe
