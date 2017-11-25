@@ -38,3 +38,5 @@
 1. In hot oil a mondu takes about 1.75 to 2 minutes to cook both sides completely.
 1. Frying 200 mondu in batches of 13 takes a little over an hour (cooking time + draining and removing from skillet)
 1. Not counted: Number of people and time to prep ingredients, mix and fill mondu. It was approximately 5 people over 30 minutes.
+1. This is about 4x the original Mondu recipe, with some modifications based on experience (such as less than 4x the eggs).
+
